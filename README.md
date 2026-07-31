@@ -8,9 +8,10 @@
 
 <p align="center"> <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/e00888c27a0a3e8cf157ea9bffc1a7c3db6eaf74/Untitled154_20260717200150.webp" width="500"> 
 
+<p align="center"> ʟᴇᴛ'ꜱ ꜱᴛᴀʀᴛ ᴍʏ ɪɴᴛʀᴏ ! :3
 
 
-Angel.
+<p align="center"> the Angel.
 
 
 
