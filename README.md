@@ -17,5 +17,4 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/1256e6c0178f3c3f78ae90b16dcf48dc49aa232e/Untitled169_20260729215928_edit_10764369404329.webp" align="left" width="150" alt="Description">
 ... I go by alot of names. Hikari, Elli, Coly, Aen, Timey.
-If my friends call me by another name, It is either I forgot to put it down here or I utterly despise being called by that name.
-!! I love when people int to me, I am very friendly I swear !!!! Don't be scared to int if ever. I also highly encourage cuds i'm lonelyyyyy..
+If my friends call me by another name, It is either I forgot to put it down here or I utterly despise being called by that name. !! I love when people int to me, I am very friendly I swear !!!! Don't be scared to int if ever. I also highly encourage cuds i'm lonelyyyyy..
