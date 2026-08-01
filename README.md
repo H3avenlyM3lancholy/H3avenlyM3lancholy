@@ -16,4 +16,6 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 <p align="center"> . . .
 
 <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/1256e6c0178f3c3f78ae90b16dcf48dc49aa232e/Untitled169_20260729215928_edit_10764369404329.webp" align="left" width="150" alt="Description">
-$${\color{lavender}I \space go \space by \space alot \space of \space names. \space Hikari, \space Elli, \space Coly, \space Aen, \space Timey.}$$ $${\color{lavender} If \space my \space friends \space call \space me \space by \space another \space name, \space It \space is \space either \space I \space forgot \space to \space put \space it \space down \space here \space or \space I \space utterly \space despise \space being \space called \space by \space that \space name}$$ $${\color{lavender}\space ! I \space love \space when \space people \space int \space to \space me , \space I \space am \space very \space friendly \space I \space swear \space !!!ll \space Don't \space be \space scared \space to \space int \space if \space ever. \space I \space also \space highly \space encourage \space cuds \space I'm \space lonellyyyy..}$$ 
+... I go by alot of names. Hikari, Elli, Coly, Aen, Timey.
+If my friends call me by another name, It is either I forgot to put it down here or I utterly despise being called by that name.
+!! I love when people int to me, I am very friendly I swear !!!! Don't be scared to int if ever. I also highly encourage cuds i'm lonelyyyyy..
