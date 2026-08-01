@@ -17,7 +17,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 
 <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/1256e6c0178f3c3f78ae90b16dcf48dc49aa232e/Untitled169_20260729215928_edit_10764369404329.webp" align="left" width="150" alt="Description">
-I go by alot of names. Hikari, Elli, Coly, Aen, Timey.
-If my friends call me by another name, It is either I forgot to put it down here or I utterly despise being called by that name. !! I love when people int to me, I am very friendly I swear !!!! Don't be scared to int if ever. I also highly encourage cuds i'm lonely..
+ɪ ɢᴏ ʙʏ ᴀʟᴏᴛ ᴏꜰ ɴᴀᴍᴇꜱ. ʜɪᴋᴀʀɪ, ᴇʟʟɪ, ᴄᴏʟʏ, ᴀᴇɴ, ᴛɪᴍᴇʏ.
+ɪꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴄᴀʟʟ ᴍᴇ ʙʏ ᴀɴᴏᴛʜᴇʀ ɴᴀᴍᴇ, ɪᴛ ɪꜱ ᴇɪᴛʜᴇʀ ɪ ꜰᴏʀɢᴏᴛ ᴛᴏ ᴘᴜᴛ ɪᴛ ᴅᴏᴡɴ ʜᴇʀᴇ ᴏʀ ɪ ᴜᴛᴛᴇʀʟʏ ᴅᴇꜱᴘɪꜱᴇ ʙᴇɪɴɢ ᴄᴀʟʟᴇᴅ ʙʏ ᴛʜᴀᴛ ɴᴀᴍᴇ. !! ɪ ʟᴏᴠᴇ ᴡʜᴇɴ ᴘᴇᴏᴘʟᴇ ɪɴᴛ ᴛᴏ ᴍᴇ, ɪ ᴀᴍ ᴠᴇʀʏ ꜰʀɪᴇɴᴅʟʏ ɪ ꜱᴡᴇᴀʀ !!!! ᴅᴏɴ'ᴛ ʙᴇ ꜱᴄᴀʀᴇᴅ ᴛᴏ ɪɴᴛ ɪꜰ ᴇᴠᴇʀ. ɪ ᴀʟꜱᴏ ʜɪɢʜʟʏ ᴇɴᴄᴏᴜʀᴀɢᴇ ᴄᴜᴅꜱ ɪ'ᴍ ʟᴏɴᴇʟʏ..
 
-I am NON BINARY, please if ever interacting to me. PLEASE USE THEY/THEM. I have personal reasons why, please respect it. And I also don't prefer revealing my age ! over or below 15, I won't tell you either way. I just like people to think that i'm the same age as them and get comfortable with me!.
+ɪ ᴀᴍ ɴᴏɴ ʙɪɴᴀʀʏ, ᴘʟᴇᴀꜱᴇ ɪꜰ ᴇᴠᴇʀ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴛᴏ ᴍᴇ. ᴘʟᴇᴀꜱᴇ ᴜꜱᴇ ᴛʜᴇʏ/ᴛʜᴇᴍ. ɪ ʜᴀᴠᴇ ᴘᴇʀꜱᴏɴᴀʟ ʀᴇᴀꜱᴏɴꜱ ᴡʜʏ, ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ɪᴛ. ᴀɴᴅ ɪ ᴀʟꜱᴏ ᴅᴏɴ'ᴛ ᴘʀᴇꜰᴇʀ ʀᴇᴠᴇᴀʟɪɴɢ ᴍʏ ᴀɢᴇ ! ᴏᴠᴇʀ ᴏʀ ʙᴇʟᴏᴡ 15, ɪ ᴡᴏɴ'ᴛ ᴛᴇʟʟ ʏᴏᴜ ᴇɪᴛʜᴇʀ ᴡᴀʏ. ɪ ᴊᴜꜱᴛ ʟɪᴋᴇ ᴘᴇᴏᴘʟᴇ ᴛᴏ ᴛʜɪɴᴋ ᴛʜᴀᴛ ɪ'ᴍ ᴛʜᴇ ꜱᴀᴍᴇ ᴀɢᴇ ᴀꜱ ᴛʜᴇᴍ ᴀɴᴅ ɢᴇᴛ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ ᴍᴇ!.
