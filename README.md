@@ -11,7 +11,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 <p align="center"> $${\color{purple}ʟᴇᴛ'ꜱ \space ꜱᴛᴀʀᴛ \space ᴍʏ \space ɪɴᴛʀᴏ \space ! \space :3}$$
 
 
-<p align="center">  $${\color{purple}🪽 \space 𝕋𝕙𝕖 \space 𝔸𝕟𝕘𝕖𝕝}$$
+<p align="center">  $${\color{lavender}🪽 \space 𝕋𝕙𝕖 \space 𝔸𝕟𝕘𝕖𝕝}$$
 
 <p align="center"> . . .
 
