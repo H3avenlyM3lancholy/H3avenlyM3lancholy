@@ -20,4 +20,4 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 I go by alot of names. Hikari, Elli, Coly, Aen, Timey.
 If my friends call me by another name, It is either I forgot to put it down here or I utterly despise being called by that name. !! I love when people int to me, I am very friendly I swear !!!! Don't be scared to int if ever. I also highly encourage cuds i'm lonely..
 
-I am NON BINARY, please if ever interacting to me. PLEASE USE THEY/THEM. I have personal reasons why, please respect it. And I also don't prefer revealing my age ! over or below 15, I won't tell you either way. I just like people to think that i'm the same age as them and get comfortable with me !.
+I am NON BINARY, please if ever interacting to me. PLEASE USE THEY/THEM. I have personal reasons why, please respect it. And I also don't prefer revealing my age ! over or below 15, I won't tell you either way. I just like people to think that i'm the same age as them and get comfortable with me!.
