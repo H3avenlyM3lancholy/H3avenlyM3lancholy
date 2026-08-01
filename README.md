@@ -1,6 +1,6 @@
 
 <p align="center"> <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/e8a29f4ce7587dacda48a92d29cdaf2f531a0829/Iknowyoullneverforgiveme.webp" width="200"> 
-  <p align="center"> $${\color{purple} 𝔸 : \space 𝕎𝕖 \space 𝕨𝕚𝕝𝕝 \space 𝕓𝕖 \space 𝕗𝕣𝕚𝕖𝕟𝕕𝕤 \space 𝕗𝕠𝕣𝕖𝕧𝕖𝕣. \space ℝ𝕚𝕘𝕙𝕥 \space 𝕞𝕪 \space ℕ𝕚𝕘𝕙𝕥𝕤𝕙𝕒𝕕𝕖?}$$
+  <p align="center"> $${\color{indigo} 𝔸 : \space 𝕎𝕖 \space 𝕨𝕚𝕝𝕝 \space 𝕓𝕖 \space 𝕗𝕣𝕚𝕖𝕟𝕕𝕤 \space 𝕗𝕠𝕣𝕖𝕧𝕖𝕣. \space ℝ𝕚𝕘𝕙𝕥 \space 𝕞𝕪 \space ℕ𝕚𝕘𝕙𝕥𝕤𝕙𝕒𝕕𝕖?}$$
     <p align="center">$${\color{indigo} 𝕋 : \space 𝕆𝕗𝕔𝕠𝕦𝕣𝕤𝕖 \space 𝕨𝕖 \space 𝕨𝕚𝕝𝕝, \space 𝕨𝕖 \space 𝕨𝕚𝕝𝕝 \space 𝕒𝕝𝕨𝕒𝕪𝕤 \space 𝕓𝕖.}$$
 
 $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space Github}$$ <p align="center"> :3
