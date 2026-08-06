@@ -49,5 +49,5 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 
 <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/89aee9d88b9f14e009e0de56aaf418b39598892c/Untitled169_20260729215715_edit_10777449373283.webp width="100"> 
-  
-  the nightshade.
+ 
+  <p align="center">the nightshade.
