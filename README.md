@@ -38,6 +38,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/e2b7696b0700ef372169f98d3349c15da7fdfab3/Untitled171_20260802015215_edit_158768704312297.png" width="500">
+My birthday is DECEMBER 1 !!!!
 
 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
