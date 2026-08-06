@@ -7,7 +7,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/ff2a694138e9cb3877c17d4523864a23d18ba81f/Untitled131_20260712020405_edit_20391426019876%20(1).webp width="700"> 
 
-<p align="center"> <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
+<p align="center"> <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/b197dcd66979ffe4be6226c9a895a9b5bbbd747a/Untitled171_20260806165817_edit_123598674275506.png" width="500"> 
 
 <p align="center"> $${\color{purple}ʟᴇᴛ'ꜱ \space ꜱᴛᴀʀᴛ \space ᴍʏ \space ɪɴᴛʀᴏ \space ! \space :3}$$
 
