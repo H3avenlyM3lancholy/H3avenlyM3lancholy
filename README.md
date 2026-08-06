@@ -45,3 +45,9 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
   <p align="center"> $${\color{indigo} \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
 
   <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/ff2a694138e9cb3877c17d4523864a23d18ba81f/Untitled131_20260712020405_edit_20391426019876%20(1).webp width="700"> 
+
+
+
+<p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/89aee9d88b9f14e009e0de56aaf418b39598892c/Untitled169_20260729215715_edit_10777449373283.webp width="100"> 
+  
+  the nightshade.
