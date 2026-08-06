@@ -37,7 +37,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 ᴘʟᴇᴀꜱᴇ ʀᴇᴍᴇᴍʙᴇʀ, ɪ ᴀᴍ ɴᴏɴʙɪɴᴀʀʏ. :3 <br clear="right"/>
 
 
-<p align="center"><img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/63293ac6c14712d5f6e3829fc1f407ba12f7fc88/Untitled171_20260802015215_edit_158768704312297.pngwidth="500">
+<p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/63293ac6c14712d5f6e3829fc1f407ba12f7fc88/Untitled171_20260802015215_edit_158768704312297.pngwidth" ="500">
 
 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
