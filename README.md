@@ -40,11 +40,11 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/e2b7696b0700ef372169f98d3349c15da7fdfab3/Untitled171_20260802015215_edit_158768704312297.png" width="500">
 𝐌𝐲 𝐛𝐢𝐫𝐭𝐡𝐝𝐚𝐲 𝐢𝐬 𝐢𝐧 𝐃𝐄𝐂𝐄𝐌𝐁𝐄𝐑 𝟏 !!!! :3 
 
-<p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
+<p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/b197dcd66979ffe4be6226c9a895a9b5bbbd747a/Untitled171_20260806165817_edit_123598674275506.png" width="500"> 
 
   <p align="center"> $${\color{indigo} \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
 
-  <p align="center"> <img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/b197dcd66979ffe4be6226c9a895a9b5bbbd747a/Untitled171_20260806165817_edit_123598674275506.png" width="700"> 
+ <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/ff2a694138e9cb3877c17d4523864a23d18ba81f/Untitled131_20260712020405_edit_20391426019876%20(1).webp width="700"> 
 
 
 
