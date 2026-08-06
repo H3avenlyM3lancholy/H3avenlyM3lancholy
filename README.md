@@ -36,6 +36,10 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 ᴍʏ ᴅᴍꜱ ᴀʀᴇ ᴀʟᴡᴀʏꜱ ᴏᴘᴇɴ ꜰᴏʀ ɴᴇᴡ ꜰʀɪᴇɴᴅꜱ, ɪɴꜰᴏᴅᴜᴍᴘꜱ, ᴀɴᴅ ʀᴀɴᴅᴏᴍ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴꜱ. ✿
 ᴘʟᴇᴀꜱᴇ ʀᴇᴍᴇᴍʙᴇʀ, ɪ ᴀᴍ ɴᴏɴʙɪɴᴀʀʏ. :3 <br clear="right"/>
 
+
+<p align="center"><img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/63293ac6c14712d5f6e3829fc1f407ba12f7fc88/Untitled171_20260802015215_edit_158768704312297.pngwidth="500">
+
+
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
 
   <p align="center"> $${\color{indigo} \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
