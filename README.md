@@ -23,7 +23,7 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 ɪ ᴀᴍ ɴᴏɴ ʙɪɴᴀʀʏ, ᴘʟᴇᴀꜱᴇ ɪꜰ ᴇᴠᴇʀ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴛᴏ ᴍᴇ. ᴘʟᴇᴀꜱᴇ ᴜꜱᴇ ᴛʜᴇʏ/ᴛʜᴇᴍ. ɪ ʜᴀᴠᴇ ᴘᴇʀꜱᴏɴᴀʟ ʀᴇᴀꜱᴏɴꜱ ᴡʜʏ, ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ɪᴛ. ᴀɴᴅ ɪ ᴀʟꜱᴏ ᴅᴏɴ'ᴛ ᴘʀᴇꜰᴇʀ ʀᴇᴠᴇᴀʟɪɴɢ ᴍʏ ᴀɢᴇ ! ᴏᴠᴇʀ ᴏʀ ʙᴇʟᴏᴡ 15, ɪ ᴡᴏɴ'ᴛ ᴛᴇʟʟ ʏᴏᴜ ᴇɪᴛʜᴇʀ ᴡᴀʏ. ɪ ᴊᴜꜱᴛ ʟɪᴋᴇ ᴘᴇᴏᴘʟᴇ ᴛᴏ ᴛʜɪɴᴋ ᴛʜᴀᴛ ɪ'ᴍ ᴛʜᴇ ꜱᴀᴍᴇ ᴀɢᴇ ᴀꜱ ᴛʜᴇᴍ ᴀɴᴅ ɢᴇᴛ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ ᴍᴇ!. ​🇹​​🇭​​🇴​​🇺​​🇬​​🇭​, ​🇷​​🇪​​🇲​​🇪​​🇲​​🇧​​🇪​​🇷​. 1️2+ ​🇩​​🇳​​🇮​. (ᴄʀᴇᴅꜱ ᴛᴏ ᴛʜᴇ ᴀʀᴛɪꜱᴛ. ᴛʜɪꜱ ꜱᴍᴀʟʟ ᴀᴢᴜʀᴇ ʟᴏᴏᴋꜱ ꜱᴏ ᴄᴜᴛᴇ.) <br clear="left"/>
 
-<p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
+<p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="200"> 
 
 <p align="center"> . . .
 
