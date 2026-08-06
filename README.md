@@ -37,4 +37,4 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/aed125ae70aba7318831093e75991a9b57a38c66/Untitled171_20260802013457_edit_157615888678518.png" width="500"> 
 
-  <p align="center"> $${\color{indigo} 𝔸 : \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
+  <p align="center"> $${\color{indigo} \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
