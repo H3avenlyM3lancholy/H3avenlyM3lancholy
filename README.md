@@ -50,5 +50,5 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/89aee9d88b9f14e009e0de56aaf418b39598892c/Untitled169_20260729215715_edit_10777449373283.webp width="100"> 
  
-  <p align="center"> $${\color{indigo} 𝐓𝐡𝐞 /space 𝐍𝐢𝐠𝐡𝐭𝐬𝐡𝐚𝐝𝐞.}$$
-  <p align="center"> $${\color{indigo}"𝗘𝘃𝗲𝗻 /space 𝘁𝗵𝗲 /space 𝗱𝗲𝗮𝗱𝗹𝗶𝗲𝘀𝘁 /space 𝗳𝗹𝗼𝘄𝗲𝗿 /space 𝗯𝗲𝗴𝗶𝗻𝘀 /space 𝗮𝘀 /space 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 /space 𝗯𝗲𝗮𝘂𝘁𝗶𝗳𝘂𝗹."}$$
+  <p align="center"> $${\color{indigo} 𝐓𝐡𝐞 \space 𝐍𝐢𝐠𝐡𝐭𝐬𝐡𝐚𝐝𝐞.}$$
+  <p align="center"> $${\color{indigo}"𝗘𝘃𝗲𝗻 \space 𝘁𝗵𝗲 \space 𝗱𝗲𝗮𝗱𝗹𝗶𝗲𝘀𝘁 \space 𝗳𝗹𝗼𝘄𝗲𝗿 \space 𝗯𝗲𝗴𝗶𝗻𝘀 \space 𝗮𝘀 \space 𝘀𝗼𝗺𝗲𝘁𝗵𝗶𝗻𝗴 \space 𝗯𝗲𝗮𝘂𝘁𝗶𝗳𝘂𝗹."}$$
