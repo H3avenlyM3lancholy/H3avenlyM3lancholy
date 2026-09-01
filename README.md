@@ -42,6 +42,8 @@ $${\color{purple}Welcome \space \color{purple}to \space \color{purple}my \space 
 
 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/b197dcd66979ffe4be6226c9a895a9b5bbbd747a/Untitled171_20260806165817_edit_123598674275506.png" width="500"> 
 
+aditional picture >:3 <p align="center"><img src="https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/bcea82531f98145d1c506f0de1202346660d86ce/image%20(6).png" width="500">
+
   <p align="center"> $${\color{indigo} \space 𝐓𝐡𝐚𝐧𝐤𝐲𝐨𝐮 \space 𝐟𝐨𝐫 \space  𝐫𝐞𝐚𝐝𝐢𝐧𝐠 \space 𝐦𝐲 \space 𝐬𝐡𝐨𝐫𝐭 \space  𝐢𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧:𝟑}$$
 
  <p align="center"> <img src=https://github.com/H3avenlyM3lancholy/H3avenlyM3lancholy/blob/ff2a694138e9cb3877c17d4523864a23d18ba81f/Untitled131_20260712020405_edit_20391426019876%20(1).webp width="700"> 
